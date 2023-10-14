@@ -1,4 +1,4 @@
-**Hi,** **I’m @praveshD**
+**Hi,** **I’m @Pravesh Jain D**
 - 👀 I’m interested in ML & AI
 - 🌱 I’m currently learning how to CODE & PROGRAM
 - 💞️ I’m looking to collaborate on Basic Projects
